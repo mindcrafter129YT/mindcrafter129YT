@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @mindcrafter129YT
-- 👀 I’m interested in Youtube
-- 🌱 I’m currently learning How to edit
+- 👀 I’m interested in youtube
+- 🌱 I’m currently learning how to edit
 - 📫 How to reach me: mindcrafter129business@gmail.com
